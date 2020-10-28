@@ -4,10 +4,10 @@
 
 *preheat oven to gas mark 4*
 
-- 16oz oats
 - 8oz butter/clover
-- 1.5oz caster sugar 
 - 12 level tbsp treacle
+- 1.5oz caster sugar 
+- 16oz oats
 
 
 Melt treacle and butter together in a large saucepan  
