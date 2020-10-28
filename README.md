@@ -10,7 +10,7 @@
 - 12 level tbsp treacle
 
 
-Melt treacle and butter together  
+Melt treacle and butter together in a large saucepan  
 When liquid put sugar in an stir until dissolved.
 Turn gas off  
 Add oats, mix in pan
