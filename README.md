@@ -25,4 +25,4 @@ Bake 12-15 min
 - 1tsp vanilla extract
 - 8oz white chocolate, melted and cooled to lukewarm
 
-
+Whisk the softened butter until fluffy and paler. Mix in the cream cheese and vanilla until blended. Fold in the melted chocolate and mix well. 
