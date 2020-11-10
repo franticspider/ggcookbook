@@ -17,3 +17,12 @@ Add oats, mix in pan
 Gently press into baking pan
 
 Bake 12-15 min
+
+# White Chocolate Cream Cheese Icing
+
+- 1lb cream cheese, softened
+- 6tbsp unsalted butter, softened
+- 1tsp vanilla extract
+- 8oz white chocolate, melted and cooled to lukewarm
+
+
