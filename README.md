@@ -1,6 +1,9 @@
 
 
-# Flapjack
+=====
+# Desserts
+
+## Flapjack
 
 *preheat oven to gas mark 4*
 
@@ -18,7 +21,7 @@ Gently press into baking pan
 
 Bake 12-15 min
 
-# White Chocolate Cream Cheese Icing
+## White Chocolate Cream Cheese Icing
 
 - 1lb cream cheese, softened
 - 6tbsp unsalted butter, softened
